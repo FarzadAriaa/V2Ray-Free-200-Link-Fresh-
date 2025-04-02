@@ -8,8 +8,7 @@
 پس بدون خرج کردن ذره ای پول از این کانفیگ ها استفاده کنید.
 
 ممنونم
-لینک اینستای من (فرزاد آریا)
-Https://www.instagram.com/Farzad_Ariaa
-From Abresan-Jeless !
-Love you Guys
+#__KAKOTY__
+##__From Abresan-Jeless !__
+##Love you Guys
 
